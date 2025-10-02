@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nikitoss
+- 👀 I’m interested in better future
+- 🌱 currently learning 
